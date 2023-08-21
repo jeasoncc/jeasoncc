@@ -11,7 +11,7 @@ You can click the Preview link to take a look at your changes.
 
 > 凡有耳的，就應當聽。
 > 
-> 《聖經》
+> ——《聖經》
 
 而遙遠的古印度則有這樣一句古話：表達的本質是傾聽，溝通的本質亦是傾聽。
 
